@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Las Vegas, Thailand, and Beyond. 
+
+ℹ️♊️ 🤘💛🏠🎵 💙🏕🏖💚☕️🍸🍷
